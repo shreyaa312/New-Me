@@ -1,4 +1,2 @@
 # New-Me
-bodycon
-straight fit
-bell bottom
+Online Shopping Platform For Genz Girls!
